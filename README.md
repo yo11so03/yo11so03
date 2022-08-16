@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @yo11so03
+- 👀 I’m interested in computer science
+- 🌱 I’m currently learning programming , languages 
+- 📫 myIG : night__fell
